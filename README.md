@@ -1,16 +1,13 @@
-## Hi there 👋
+<img width="1280" height="450" alt="tumblr_eb20ad5a13a2f713e01f3ca3b4af0333_84f84560_1280" src="https://github.com/user-attachments/assets/3b70040f-e5b2-4265-964e-fbcb1b0dc90a" />
 
-<!--
-**slime-boyy/slime-boyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=fira+code&pause=10&color=3F643A&center=true&vCenter=true&random=true&width=435&lines=wait+my+left+or+your+left%3F" alt="Typing SVG" /></a>
 
-Here are some ideas to get you started:
+<p align=center>
+ she / any . 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ <p align=center>
+check my rentry
+https://rentry.co/saywallahibrosaywallahi
+
+   
+   ![tumblr_c0e24a6995249874bff89f8563a10edf_e7a413de_1280 (1)](https://github.com/user-attachments/assets/cebbd23a-ceee-4304-bfce-10320953cdad)
