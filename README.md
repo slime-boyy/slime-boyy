@@ -6,8 +6,13 @@
 <p align=center>
  she / any . 
 
- <p align=center>
-check my rentry
-https://rentry.co/saywallahibrosaywallahi
+<div align="center">
+
+### [rentry](https://rentry.co/saywallahibrosaywallahi) • [atabook](https://apolurez.atabook.org) • [prns.cc](https://pronouns.cc/averythemayoooo)
+
+</div>
+
+
+
 
    ![tumblr_c0e24a6995249874bff89f8563a10edf_e7a413de_1280 (1)](https://github.com/user-attachments/assets/7536a517-e286-4ec5-b002-a2e8ca715b9a)
