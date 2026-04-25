@@ -16,3 +16,12 @@
 
 
    ![tumblr_c0e24a6995249874bff89f8563a10edf_e7a413de_1280 (1)](https://github.com/user-attachments/assets/7536a517-e286-4ec5-b002-a2e8ca715b9a)
+
+
+
+
+
+   <p align=center>
+   WHAT IS THISSS IM CRINE??
+   <img width="408" height="351" alt="Screenshot 2026-04-25 9 10 29 PM" src="https://github.com/user-attachments/assets/45e2e993-dd11-470b-a746-941014da69dc" />
+
